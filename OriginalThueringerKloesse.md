@@ -6,4 +6,4 @@ Salz: 1/4 Teelöffel
 Milch: (kochend), 1/2 Tasse
 Muskat: 1/2 Prise
 Butter: 25 gr
-Semmelbrösel: aus einem Brötchen
+Semmelbrösel: ein Brötchen
